@@ -72,7 +72,7 @@ Can I bring my pet camping with me?
 
 Yes, but ensure your pet is prepared and respect any pet-related regulations at your chosen campsite.
 
-* Is solo camping safe?
+* Is solo camping safe? *
 
 Solo camping can be safe with proper preparation, prioritizing safety, and informing others of your plans.
 
